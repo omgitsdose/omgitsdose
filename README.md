@@ -1,3 +1,7 @@
+Sacramento based email developer, specializing in marketing automation, who loves digging through code.  I have a background in graphic and web design, and continually seek new challenges and am comfortable working in fast-paced environments while able to meet tight deadlines. I have a creative open mindset and strive for success.
+
+<hr>
+
 - 👋 Hi, I’m Donnell
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
